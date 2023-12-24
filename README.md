@@ -10,6 +10,7 @@
 #Day-1 20/12/23   out of 10:2  but while doing some stretch hurted myself but not that pain.
 #Day-1 21/12/23   out of 10:8  because of previous day stretch it started hurting a lot...hell is going on
 #Day-1 22/12/23   out of 10:8  because of previous day stretch it started hurting a lot...hell is going on and the pain is more.
+#Day-1 23/12/23   out of 10:3  went to picnic and it was one of the best day of 2023.
 
 
 
