@@ -11,6 +11,15 @@
 #Day-1 21/12/23   out of 10:8  because of previous day stretch it started hurting a lot...hell is going on
 #Day-1 22/12/23   out of 10:8  because of previous day stretch it started hurting a lot...hell is going on and the pain is more.
 #Day-1 23/12/23   out of 10:3  went to picnic and it was one of the best day of 2023.
+#Day-1 24/12/23   out of 10:5  was so painful but i did good workout and it was abit relax
+#Day-1 25/12/23   out of 10:5  was so painful but i did good workout and it was abit relax
+#Day-1 26/12/23   out of 10:5  was so painful but i did good workout and it was abit relax
+#Day-1 27/12/23   out of 10:5  was so painful but i did good workout and it was abit relax
+#Day-1 28/12/23   out of 10:5  was so painful but i did good workout and it was abit relax
+#Day-1 29/12/23   out of 10:5  was so relax when i wake up in the morning
+#Day-1 20/12/23   out of 10:5  was relax and i did not do any workout so it was abit painful during the day..so a workout is a must.
+
+
 
 
 
