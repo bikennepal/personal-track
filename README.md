@@ -31,6 +31,10 @@
 #Day-1 10/1/24   out of 10:5  was relax and i did not do any workout so it was abit painful during the day..so a workout is a must. and date 10th was our first day with full performance.
 #Day-1 11/1/24   out of 10:5  was relax and i did not do any workout so it was abit painful during the day..so a workout is a must.
 #Day-1 12/1/24   out of 10:5  was relax and i did not do any workout so it was abit painful during the day..so a workout is a must.another day with my love i did.
+#Day-1 13/1/24   out of 10:5  was relax and i did not do any workout so it was abit painful during the day..so a workout is a must
+#Day-1 14/1/24   out of 10:5  was relax and i did not do any workout so it was abit painful during the day..so a workout is a must.
+#Day-1 15/1/24   out of 10:5  was relax and i did not do any workout so it was abit painful during the day..so a workout is a must and went to watch a movie hanuman.
+
 
 
 
